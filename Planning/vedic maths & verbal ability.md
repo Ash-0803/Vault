@@ -1,0 +1,2 @@
+~ Critical thinking is necessary to build. I have to work on it to make life decisions and professional decisions too. 
+~ To evaluate if I can, I will study vedic maths and verbal ability for an year. If I'll excel in it, I will prepare for the cat exam.
